@@ -1,5 +1,6 @@
 # Practice Website for my Digitech class
-please do not look at this website thank you very much 🙏
+PLEASE edit this and look at this website thank you very much 🙏
+I appreciate all of the effort you guys will ptu on tshis websitste
 
 
 
